@@ -1,1 +1,2 @@
-![home](https://github.com/user-attachments/assets/8cc17dbf-3400-4a69-b392-fbce38ff6382)
+![quotes](https://github.com/user-attachments/assets/5fef2abb-d931-4414-97bf-9cd6ae9f5fcd)
+
